@@ -18,3 +18,5 @@ Nadir v4.0 FP : https://mumus.s-ul.eu/uYMEgMkk
 Seoul Shinobu - Edit : https://mumus.s-ul.eu/navR6QcW
 
 #StellarWolf v3.4 : https://mumus.s-ul.eu/weoZFizZ
+
+HappyStick+Summer+Tour : https://mumus.s-ul.eu/HEEItma8
