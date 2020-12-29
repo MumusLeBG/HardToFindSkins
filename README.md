@@ -2,8 +2,6 @@
 
 Some cool scorebar BGs : https://mumus.s-ul.eu/j2DuqtGy
 
-
-
 im bad skin : https://mumus.s-ul.eu/DxM8rfzH
 
 luca starry helvetica : https://mumus.s-ul.eu/T5JvrI1n
