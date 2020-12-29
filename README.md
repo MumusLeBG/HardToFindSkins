@@ -14,3 +14,7 @@ Flow : https://mumus.s-ul.eu/l7Y9pHKW
 Kush Medieval X LYS renewed (RUSTBELL HITCRICLES RECOLORED) : https://mumus.s-ul.eu/GSaI6rKe
 
 Nadir v4.0 FP : https://mumus.s-ul.eu/uYMEgMkk
+
+Seoul Shinobu - Edit : https://mumus.s-ul.eu/navR6QcW
+
+#StellarWolf v3.4 : https://mumus.s-ul.eu/weoZFizZ
