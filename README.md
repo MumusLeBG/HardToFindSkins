@@ -1,5 +1,8 @@
 # HardToFindSkins
 
+Some cool scorebar BGs : https://mumus.s-ul.eu/j2DuqtGy
+
+
 
 im bad skin : https://mumus.s-ul.eu/DxM8rfzH
 
@@ -30,9 +33,3 @@ Hvick225 - white (new) : https://mumus.s-ul.eu/f5z8244D
 -+Dumii+DT (2018) : https://mumus.s-ul.eu/gzcTQkva
 
 
-
-
-
-
-
-Some cool scorebar BGs : https://mumus.s-ul.eu/j2DuqtGy
