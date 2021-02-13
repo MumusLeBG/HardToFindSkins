@@ -6,7 +6,10 @@ If any link is dead, PM me on discord : M u m u s#6054
 
 Some cool scorebar BGs : https://mumus.s-ul.eu/j2DuqtGy
 
-im bad skin : https://mumus.s-ul.eu/DxM8rfzH
+# [im bad skin](https://mumus.s-ul.eu/DxM8rfzH)
+![](https://imgur.com/J78GNRA.png)
+
+
 
 luca starry helvetica : https://mumus.s-ul.eu/T5JvrI1n
 
