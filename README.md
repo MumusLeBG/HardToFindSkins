@@ -1,5 +1,7 @@
 # HardToFindSkins 
 
+These are some skins I couldn't remember where I got them, so I'm listing it here
+
 If any link is dead, PM me on discord : M u m u s#6054
 
 
